@@ -1,2 +1,0 @@
-# jomariejaybatingal
-Portfolio Pages Repository
